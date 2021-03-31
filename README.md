@@ -13,3 +13,8 @@
 #lab4
 ![image](https://user-images.githubusercontent.com/78751531/113024748-eb1cd280-91a8-11eb-86d0-7a747086bd5d.png)
 
+
+#lab5
+![image](https://user-images.githubusercontent.com/78751531/113172061-e3713280-9269-11eb-9917-bb5c0c20b3c2.png)
+
+
