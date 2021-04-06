@@ -28,5 +28,10 @@
 ![image](https://user-images.githubusercontent.com/78751531/113755041-ac9b9080-9731-11eb-90b1-8681ffc20354.png)
 
 
+#lab7
+![image](https://user-images.githubusercontent.com/78751531/113768691-effdfb00-9741-11eb-9868-03c3eca3390e.png)
+
+
+
 
 
