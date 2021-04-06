@@ -21,4 +21,12 @@
 ![image](https://user-images.githubusercontent.com/78751531/113184760-6947aa80-9277-11eb-9e4e-65bde977edf5.png)
 
 
+#lab6
+![image](https://user-images.githubusercontent.com/78751531/113754996-9f7ea180-9731-11eb-8282-766bd683c1d7.png)
+
+
+![image](https://user-images.githubusercontent.com/78751531/113755041-ac9b9080-9731-11eb-90b1-8681ffc20354.png)
+
+
+
 
