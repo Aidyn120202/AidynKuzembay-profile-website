@@ -35,6 +35,22 @@
 ![image](https://user-images.githubusercontent.com/78751531/113776357-a87c6c80-974b-11eb-8733-d5cf4e742212.png)
 
 
+#lab9
+En
+![image](https://user-images.githubusercontent.com/78751531/115521454-fdbc9000-a2ac-11eb-9ca2-9c72e8720f26.png)
+
+
+
+Ru
+![image](https://user-images.githubusercontent.com/78751531/115521364-e7163900-a2ac-11eb-865a-199cbedae94b.png)
+
+
+
+Kz
+![image](https://user-images.githubusercontent.com/78751531/115521314-d960b380-a2ac-11eb-8e8b-447b986d8390.png)
+
+
+
 
 
 
